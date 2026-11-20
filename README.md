@@ -1,5 +1,5 @@
 # 💫 About Me:
-I 'm Software Engineering Student at Pak Austria Fachhochschule Instittue of Applied Sciences And Technology Mang Haripur<br>
+AI & ML Enthusiast | Full-Stack Developer | Exploring Intelligent Healthcare Systems | Author | Speaker<br>
 
 
 ## 🌐 Socials:
